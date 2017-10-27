@@ -1,0 +1,1 @@
+Wpis w projekcie bocznym
